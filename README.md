@@ -1,4 +1,4 @@
-An open minded individual who is passionate about Data Science,Artificial Intelligence and Data Analytics and its applications in the field of Agriculture,Food Science,Healthcare,Business and Finance, I’m looking to collaborate on datascience projects
+An open minded individual who is passionate about Data Science,Artificial Intelligence and Data Analytics and its applications in the field of Agriculture,Food Science,Healthcare,Business and Finance, I’m looking to collaborate on datascience projects,
 And also open to internships and job roles.
 
 <!---
